@@ -1,0 +1,1 @@
+Description about Zent and Noella. Fan story information about characters created by me and my friend
